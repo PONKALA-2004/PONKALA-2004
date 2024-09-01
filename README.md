@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PONKALA-2004.
 - 👀 I’m interested in coding nowadays.
 - 🌱 I’m currently learning PYTHON.
-- 📫 How to reach me DM for mee.
+- 📫 DM for mee.
   
 
 
